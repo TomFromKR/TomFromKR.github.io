@@ -8,8 +8,8 @@ Developers who always studying
 
 ### More Information
 
-Career
-Dongguk Univ Math & Multimedia Engineering
+Career<br>
+Dongguk Univ Math & Multimedia Engineering<br>
 Biztalk T&S(Technique Solution) intern
 
 ### Contact me
